@@ -1,4 +1,4 @@
-# Александр Мерзляков - "steel & piety history"
+# Александр Мерзляков - "steel & piety of history"
 
 ### Группа: 10 - МИ - 1
 ### Электронная почта: m3ralex@yandex.ru
