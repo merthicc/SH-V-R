@@ -1,4 +1,4 @@
-# Александр Мерзляков - "Another game"
+# Александр Мерзляков - “MapNote”
 ### Группа: 10 - И - 1
 ### Электронная почта: m3ralex@yandex.ru
 ### VK: www.vk.com/cofyamyashalka
